@@ -20,3 +20,13 @@ Navržené podmínky….
 Měření podmínek …. 
 
 Přirozená kontrola …. 
+
+Ukončení osočování z nekorektnosti  – co je to korektnost – jsme pro otevřenou a přirozenou komunikaci
+
+Přirozený řád …. 
+
+Navržené podmínky…. 
+
+Měření podmínek …. 
+
+Přirozená kontrola …. 
