@@ -10,3 +10,9 @@ Navržené podmínky….
 Měření podmínek ….
 
 Přirozená kontrola ….
+
+Podpora vzniku regionálních medií – podpora alternativních medií
+Přirozený řád …. 
+Navržené podmínky…. 
+Měření podmínek …. 
+Přirozená kontrola …. 
