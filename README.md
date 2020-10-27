@@ -30,3 +30,15 @@ Navržené podmínky….
 Měření podmínek …. 
 
 Přirozená kontrola …. 
+
+3 témata ….  co je potřeba proměnit ( co není v souladu s PŘ)
+
+Decentralizovat a nechat odpovědnost na regionech
+
+Přirozený řád …. 
+
+Navržené podmínky…. 
+
+Měření podmínek …. 
+
+Přirozená kontrola …. 
